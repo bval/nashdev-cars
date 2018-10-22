@@ -7,6 +7,10 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Auto Detailing
 - [Marlins Auto Detailing](https://www.facebook.com/MarlinsAutoDetailing/) - A @zkellerdevelops recommendation
 
+### Window Tinting (and wraps)
+- [X-treme Window Tinting](http://www.x-tremewindowtint.com/) - Franklin/Cool Springs - Great shop, reasonable rates, top-quality products. They also do full wraps and clear pain protection films. Ask for Landon.
+- [Performance Films of TN](https://www.performancefilmstn.com/) - Nashville - A little pricey but top-of-the-line films, all hand-cut to the car. Top quality.
+
 ### Mechanics
 - [Markee Automotive](http://www.markeeauto.com/) -- Mark is the most honest mechanic in town
 - [German Performance Options (GPO)](https://www.gpotuning.com/) - Got one of them fancy YUR-OH-PEE-AN cars? They've got you.
@@ -16,3 +20,5 @@ Nashville, Tennessee, USA, NORTH AMERICA
 - [Auto Paint Renew](http://www.autocollisionnashville.com) - @signed8bit had these guys buff out a scratch, seemed quite good overall
 - [Paint & Body Perfectors](http://www.paintandbodyperfectors.com) - @signed8bit had the bumper of his GTI replaced here and the work was very good
 
+### Tires & Alignment
+- [Bass Tire](https://www.basstire.com/) - Tires, alignment, other general maintenance.  Be sure to ask for road force balancing.  Clean waiting area and WiFi available.
