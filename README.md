@@ -14,4 +14,5 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Paint & Body Shops
 - [Auto Art Murfreesboro](http://www.autoartbodyshop.com/locations/murfreesboro/) - Ask for Chief and tell them you're a friend of @zkellerdevelops
 - [Auto Paint Renew](http://www.autocollisionnashville.com) - @signed8bit had these guys buff out a scratch, seemed quite good overall
+- [Paint & Body Perfectors](http://www.paintandbodyperfectors.com) - @signed8bit had the bumper of his GTI replaced here and the work was very good
 
