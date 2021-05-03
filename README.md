@@ -32,3 +32,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Locksmith
 
 * [ABC Lock and Key](https://www.456lock.com/)
+
+### Clutch and Flywheel Work
+
+* [Tennessee Clutch & Supply Inc](http://tennessee-inc.edan.io/) - Rebuilt clutches, custom clutch disks, flywheel refinishing and lightening, etc. Located in south Nashville area.
