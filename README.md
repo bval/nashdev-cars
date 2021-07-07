@@ -17,6 +17,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 * [Markee Automotive](http://www.markeeauto.com/) -- Mark is the most honest mechanic in town
 * [German Performance Options (GPO)](https://www.gpotuning.com/) - Got one of them fancy YUR-OH-PEE-AN cars? They've got you.
+* [German Motorworks](https://www.germanmotorworksnashville.com/) - Specializing in BMWs, exotics, and pretty much anything European
 
 ### Paint & Body Shops
 
@@ -24,6 +25,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 * [Auto Paint Renew](http://www.autocollisionnashville.com) - @signed8bit had these guys buff out a scratch, seemed quite good overall
 * [Paint & Body Perfectors](http://www.paintandbodyperfectors.com) - @signed8bit had the bumper of his GTI replaced here and the work was very good
 * [Whaley's Body Shop](https://whaleybodyshop.com/) - @seanspradlin Replaced fender and liner on Miata. Looks like the car was never touched.
+* [ColorKraft Auto Refinishers](https://www.colorkraftauto.com/) - Sister shop of German Performance Options. Located in Columbia, TN but will do pickup/dropoff at GPO.
 
 ### Tires & Alignment
 
@@ -36,3 +38,8 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Clutch and Flywheel Work
 
 * [Tennessee Clutch & Supply Inc](http://tennessee-inc.edan.io/) - Rebuilt clutches, custom clutch disks, flywheel refinishing and lightening, etc. Located in south Nashville area.
+
+
+### Customization
+
+* (Titan Motoring)[https://titanmotoring.net/] - Car audio, wheels, custom interior, tint, wraps, etc. A one stop shop.
