@@ -42,4 +42,4 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 ### Customization
 
-* (Titan Motoring)[https://titanmotoring.net/] - Car audio, wheels, custom interior, tint, wraps, etc. A one stop shop.
+* [Titan Motoring](https://titanmotoring.net/) - Car audio, wheels, custom interior, tint, wraps, etc. A one stop shop.
