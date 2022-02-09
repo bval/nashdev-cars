@@ -7,6 +7,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Auto Detailing
 
 * [Marlins Auto Detailing](https://www.facebook.com/MarlinsAutoDetailing/) - A @zkellerdevelops recommendation
+* [Auto Aesthetics](https://www.autoaestheticstn.com/) - Paint correction, ceramic coating, and paint protection film. He is mobile and will come to you. 
 
 ### Window Tinting (and wraps)
 
