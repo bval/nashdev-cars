@@ -27,6 +27,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 * [Paint & Body Perfectors](http://www.paintandbodyperfectors.com) - @signed8bit had the bumper of his GTI replaced here and the work was very good
 * [Whaley's Body Shop](https://whaleybodyshop.com/) - @seanspradlin Replaced fender and liner on Miata. Looks like the car was never touched.
 * [ColorKraft Auto Refinishers](https://www.colorkraftauto.com/) - Sister shop of German Performance Options. Located in Columbia, TN but will do pickup/dropoff at GPO.
+* [Victory Dent Repair](https://www.victorydent.com/) - Paintless Dent Repair (recc by Ryan O.)
 
 ### Tires & Alignment
 
