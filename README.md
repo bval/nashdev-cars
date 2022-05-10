@@ -28,6 +28,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 * [Whaley's Body Shop](https://whaleybodyshop.com/) - @seanspradlin Replaced fender and liner on Miata. Looks like the car was never touched.
 * [ColorKraft Auto Refinishers](https://www.colorkraftauto.com/) - Sister shop of German Performance Options. Located in Columbia, TN but will do pickup/dropoff at GPO.
 * [Victory Dent Repair](https://www.victorydent.com/) - Paintless Dent Repair (recc by Ryan O.)
+* [DENTCORE PDR](https://dentcorepdr.com/) - @tedmarov was quoted $2500 by a different body shop for tree damage to a rear SUV door. Final out the door price by DENTCORE was well under $500, looks very good. Eric is the man.
 
 ### Tires & Alignment
 
