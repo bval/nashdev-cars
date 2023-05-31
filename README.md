@@ -13,12 +13,14 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 * [X-treme Window Tinting](http://www.x-tremewindowtint.com/) - Franklin/Cool Springs - Great shop, reasonable rates, top-quality products. They also do full wraps and clear pain protection films. Ask for Landon.
 * [Performance Films of TN](https://www.performancefilmstn.com/) - Nashville - A little pricey but top-of-the-line films, all hand-cut to the car. Top quality.
+* [Global Motorsports](https://www.globalmotorsportsinc.com/) - Brentwood - 3M Films
 
 ### Mechanics
 
 * [Markee Automotive](http://www.markeeauto.com/) -- Mark is the most honest mechanic in town
 * [German Performance Options (GPO)](https://www.gpotuning.com/) - Got one of them fancy YUR-OH-PEE-AN cars? They've got you.
 * [German Motorworks](https://www.germanmotorworksnashville.com/) - Specializing in BMWs, exotics, and pretty much anything European
+* [Global Motorsports](https://www.globalmotorsportsinc.com/) - Brentwood - Service for all types of brands. Jay is highly regarded Porsche technician. 
 
 ### Paint & Body Shops
 
@@ -42,7 +44,11 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 * [Tennessee Clutch & Supply Inc](http://tennessee-inc.edan.io/) - Rebuilt clutches, custom clutch disks, flywheel refinishing and lightening, etc. Located in south Nashville area.
 
+### Leather Repair
+
+* [Fibrenew Nashville South](https://www.fibrenew.com/nashvillesouth) - Leather, plastic, and vinyl restoration.
 
 ### Customization
 
-* [Titan Motoring](https://titanmotoring.net/) - Car audio, wheels, custom interior, tint, wraps, etc. A one stop shop.
+* [Wolfe Customs](https://www.wolfecustoms.net/) - Franklin - Full suite of car customizations - audio, wheels, interior, tint, wraps, etc. Started by a former Titan Motoring employee, Donny Wolfe. 
+* [Titan Motoring](https://titanmotoring.net/) - Nashville - Car audio, wheels, custom interior, tint, wraps, etc. A one stop shop.
