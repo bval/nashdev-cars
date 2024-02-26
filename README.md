@@ -36,6 +36,11 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 * [Lawrence Glass](https://lawrenceglass.com/) - Small locally owned business in Nashville with a great reputation in the car community. They are mobile and will come to you.
 
+### Wheel Repair
+
+* [Wheel Repair of Tennessee](https://musiccityrecon.com/wheel-repair.htm) - A favorite of the channel for all wheel repair needs.
+* [Hubcap Heaven](https://www.hubcapheavennashville.com) - Another frequent recommendation for wheel repair.
+
 ### Tires & Alignment
 
 * [Bass Tire](https://www.basstire.com/) - Tires, alignment, other general maintenance. Be sure to ask for road force balancing. Clean waiting area and WiFi available.
