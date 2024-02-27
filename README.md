@@ -21,6 +21,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 * [German Performance Options (GPO)](https://www.gpotuning.com/) - Got one of them fancy YUR-OH-PEE-AN cars? They've got you.
 * [German Motorworks](https://www.germanmotorworksnashville.com/) - Specializing in BMWs, exotics, and pretty much anything European
 * [Global Motorsports](https://www.globalmotorsportsinc.com/) - Brentwood - Service for all types of brands. Jay is highly regarded Porsche technician. 
+* [CS Automotive](https://mycsauto.com/) - Brentwood - Highly experienced Toyota/Lexus indie shop. Pricey, but high quality. 
 
 ### Paint & Body Shops
 
