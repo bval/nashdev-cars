@@ -7,7 +7,7 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Auto Detailing
 
 * [Marlins Auto Detailing](https://www.facebook.com/MarlinsAutoDetailing/) - A @zkellerdevelops recommendation
-* [AJR Automotive](https://www.autoaestheticstn.com/) - Detailing, paint correction, and ceramic coating. He is mobile and will come to you. 
+* [AJR Automotive](https://www.ajrautomotive.com) - Detailing, paint correction, and ceramic coating. He is mobile and will come to you. 
 
 ### Window Tinting (and wraps)
 
