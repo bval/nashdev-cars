@@ -12,8 +12,8 @@ Nashville, Tennessee, USA, NORTH AMERICA
 ### Window Tinting (and wraps)
 
 * [X-treme Window Tinting](http://www.x-tremewindowtint.com/) - Franklin/Cool Springs - Great shop, reasonable rates, top-quality products. They also do full wraps and clear pain protection films. Ask for Landon.
-* [Global Motorsports](https://www.globalmotorsportsinc.com/) - Brentwood - 3M Films
 * [Corsair](https://www.corsairdetail.com/) - Nashville, Brentwood, and Franklin. Ceramic tint, wraps, ceramic coating
+* [Chino Window Tint](https://www.facebook.com/chinowindowtint/) - Nashville / Nolensville Road. No appointments, first come first serve. Very popular locally recommended option and more competitive pricing than most others.
 
 ### Mechanics
 
@@ -29,8 +29,9 @@ Nashville, Tennessee, USA, NORTH AMERICA
 * [Paint & Body Perfectors](https://www.auto-bodyrepairnashville.com/) - @signed8bit had the bumper of his GTI replaced here and the work was very good
 * [Whaley's Body Shop](https://whaleybodyshop.com/) - @seanspradlin Replaced fender and liner on Miata. Looks like the car was never touched.
 * [ColorKraft Auto Refinishers](https://www.colorkraftauto.com/) - Sister shop of German Performance Options. Located in Columbia, TN but will do pickup/dropoff at GPO.
-* [Victory Dent Repair](https://www.victorydent.com/) - Paintless Dent Repair (recc by Ryan O.)
+* [Victory Dent Repair](https://www.facebook.com/victorydent.tn/) - Paintless Dent Repair by Shane Booth. Website may be down but he responds to text messages.
 * [DENTCORE PDR](https://dentcorepdr.com/) - @tedmarov was quoted $2500 by a different body shop for tree damage to a rear SUV door. Final out the door price by DENTCORE was well under $500, looks very good. Eric is the man.
+* [Dent Sniper of Nashville](https://www.instagram.com/dentsnipernashville/) - Paul Snipes AKA the Dent Sniper. Very popular in local car groups.
 
 ### Glass
 
@@ -61,13 +62,14 @@ Nashville, Tennessee, USA, NORTH AMERICA
 
 * [Nasvhille Cars and Coffee](https://www.instagram.com/nashvillecarsandcoffee/) - First Saturday of every month at the Nashville Super Speedway
 * [Bulls & Bagels](https://www.instagram.com/lamborghininashville/) - First Saturday of every month at Lamborghini Nashville during the warm months (March-ish to November-ish)
-* [Global Motorsports Car Meet](https://www.instagram.com/carmeet_globalmotorsports/) - Second Saturday of every month at Global Motorsports Performance Center in Brentwood. Inside and outside, usually a heavy supercar turnout. Parking at the event space is restricted but there is parking nearby.
-* [Fast Franklin](https://www.instagram.com/fastfranklincarshow/) - Third Saturday of every month in Brentwood
+* [Fast Franklin](https://www.instagram.com/fastfranklincarshow/) - Third Saturday of every month in Franklin
+* [Cars and Caffeine](https://www.instagram.com/carsandcaffeinetn/) - Second Saturday of every month at 111 Motorcars in Franklin. Inside and outside, usually a heavy supercar turnout. Parking at the event space requires RSVP but all cars are welcome.
 
 ### Clubs
 
 * [Nashville Audi Club](https://nashvilleaudiclub.com/) - Local Audi owners
 * [Nashville BMW Club](https://nashvillebmwclub.com/) - Local BMW owners club
+* [Musik-Stadt PCA](https://msk.pca.org/) - Middle TN regional chapter of the Porsche Club of America
 * [Dubs of Nashville](https://www.facebook.com/DubsofNashville/) - Local Volkswagen owners club
 * [Harpeth Car Club](https://www.harpethcarclub.com/) - Occasional meets, poker runs, and group track days
 
